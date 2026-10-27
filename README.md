@@ -11,4 +11,4 @@ El Salvador es un pequeño país de América Central conocido por sus volcanes, 
 Entre los más conocidos se encuentran el lago de Coatepeque, el lago de Ilopango y el lago Suchitlán.
 
 
-Le lac le plus grand du salavador est aussi leplus beau.
+Le lac le plus grand du salavador est aussi leplus beau. Une des 7 merveilles du monde.
