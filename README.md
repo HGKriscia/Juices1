@@ -9,3 +9,6 @@ Practice water sports like paddleboarding, diving and jet skiing.
 El Salvador es un pequeño país de América Central conocido por sus volcanes, sus montañas y sus paisajes naturales. En su territorio existen varios lagos de origen volcánico y artificial, importantes para el medio ambiente, el turismo y las comunidades locales.
 
 Entre los más conocidos se encuentran el lago de Coatepeque, el lago de Ilopango y el lago Suchitlán.
+
+
+Le lac le plus grand du salavador est aussi leplus beau.
